@@ -1,4 +1,4 @@
-good day mr maro. it took me a week to get jus this 40% done. i please request more time 
+Good day Mr Maro Sir. it took me a week to get jus this 40% done. i please request more time 
 because it is running me mad
 
 Ledgerly – AI Help Desk Assistant
